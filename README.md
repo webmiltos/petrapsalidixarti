@@ -1,0 +1,2 @@
+# petrapsalidixarti
+πέτρα - ψαλίδι - χαρτί
